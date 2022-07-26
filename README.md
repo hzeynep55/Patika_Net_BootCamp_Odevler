@@ -1,0 +1,1 @@
+# Patika_Net_BootCamp_Odevler
